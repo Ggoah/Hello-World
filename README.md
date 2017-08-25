@@ -1,5 +1,6 @@
 # Hello-World
 Place for new developer to store ideas, resources
+</ br>
 I woke up from a three year bender in a fraternity house of an elite university I don't attend
 Currently I'm living in their basement - my room is pretty damn cozy to be honest, things could be much worse
 I dropped out of college because of an intense fear of debt-slavery. I grew up poor and owing people money. Not doing it again.
